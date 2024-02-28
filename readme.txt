@@ -1,3 +1,3 @@
 I love Baobao very much.
-Bao love me very much too.
-Bao and Bao love each other.
+Baobao love me very much too.
+Baobao and Baobao love each other.
